@@ -1,2 +1,2 @@
 # Meowchine-Learning
-Fun Projects and Learning - 🐱- Meow Meow
+Fun Projects and Learning - 🐱- Meow 🐈 Meow
